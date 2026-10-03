@@ -5,4 +5,5 @@ Some skills that I have acquired through my experiences in school and through in
 
 
 Writing Sample - [View Writing Sample](./Amrutha.Mohan.WritingSample.pdf)
+
 Equity Research Report - [View Dollar General Equity Research Report](./Group%209%20-%20DG.Report%20%282%29.pdf)
